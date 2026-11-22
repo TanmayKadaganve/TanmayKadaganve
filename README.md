@@ -44,7 +44,7 @@
 ### 🤝 Connect With Me
 
 - GitHub: https://github.com/TanmayKadaganve
-- LinkedIn: Add your LinkedIn profile URL
+- LinkedIn:www.linkedin.com/in/tanmay-kadaganve-89a115347
 
 ---
 
